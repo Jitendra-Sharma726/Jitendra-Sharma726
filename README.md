@@ -5,5 +5,6 @@
 - 📫 How to reach me
 - Medium : jkumarsharma998
 - Linkedin : https://www.linkedin.com/in/jitendra-kumar-sharma-204069294/
+- Twitter : https://twitter.com/home?lang=en-in/jkumarsharma998
 
 
